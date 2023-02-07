@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ليزبيث
+- 👋 Hi, I’m Lisbeth
 <!---
 - 👋 Hi, I’m @imlisbeth
 - 👀 I’m interested in ...

@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lisbeth
+- 👋 Hi, I’m ℒ𝒾𝓈𝒷ℯ𝓉𝒽
 <!---
 - 👋 Hi, I’m @imlisbeth
 - 👀 I’m interested in ...
